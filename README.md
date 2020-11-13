@@ -1,1 +1,1 @@
- 	![alt-text](https://github.com/cryptoseb/cryptoseb/blob/main/github-header.gif)
+ 	![alt-text](https://cryptoseb.pw/error.png)
