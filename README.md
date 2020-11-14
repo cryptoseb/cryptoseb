@@ -13,17 +13,17 @@
 
 ## 𝚂𝚘𝚖𝚎 𝙿𝚛𝚘𝚏𝚎𝚜𝚜𝚒𝚘𝚗𝚊𝚕 𝙳𝚎𝚝𝚊𝚒𝚕𝚜. . .
 
-😎 I'm a self-taught tech nerd.
+😎 I'm a self-taught tech nerd
 
 🔐 I advocate for privacy and security [online](https://github.com/cryptoseb/cryptopaper)
 
 🧰 WordPress Design, Marketing, and [Online Presence Management](https://alloutdrilling.ca) excite me
 
-🧠 I'm [learning HTML & CSS](https://github.com/cryptoseb/cryptoseb.pw/tree/main/new-site) in my spare time.
+🧠 I'm [learning HTML & CSS](https://github.com/cryptoseb/cryptoseb.pw/tree/main/new-site) in my spare time with freeCodeCamp
 
 💻 My daily driver is a Macbook Pro, but I also love Debian
 
-🧸 I just left an extensive career in [Early Learning and Childcare](https://twitter.com/promoteplay) to pursue tech full time.
+🧸 I just left an extensive career in [Early Learning and Childcare](https://twitter.com/promoteplay) to pursue tech full time
 
 ## 𝚂𝚘𝚖𝚎 𝙲𝚘𝚗𝚝𝚊𝚌𝚝 𝙳𝚎𝚝𝚊𝚒𝚕𝚜. . .
 
