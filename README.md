@@ -9,7 +9,7 @@
 
 🎧 I listen to a lot of [music](https://open.spotify.com/user/lq3awj2wf504mkdzdnfamorf3) from almost all genres
 
-🌮 I love tacos, and my grandma's apple pie
+🌮 I love tacos, steak, and my grandma's apple pie
 
 ## 𝚂𝚘𝚖𝚎 𝙿𝚛𝚘𝚏𝚎𝚜𝚜𝚒𝚘𝚗𝚊𝚕 𝙳𝚎𝚝𝚊𝚒𝚕𝚜. . .
 
@@ -23,7 +23,7 @@
 
 💻 My daily driver is a Macbook Pro, but I also love Debian
 
-🧸 I just left an extensive career in [Early Learning and Childcare](https://twitter.com/promoteplay) to pursue tech full time
+🧸 I just left an extensive career in Early Learning & Childcare to pursue tech full time
 
 ## 𝚂𝚘𝚖𝚎 𝙲𝚘𝚗𝚝𝚊𝚌𝚝 𝙳𝚎𝚝𝚊𝚒𝚕𝚜. . .
 
