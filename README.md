@@ -17,7 +17,7 @@
 
 🔐 I advocate for privacy and security [online](https://github.com/cryptoseb/cryptopaper)
 
-🧰 WordPress Design, Marketing, and [Online Presence Management](https://alloutdrilling.ca) excite me
+🧰 WordPress Design, Marketing, and [Digital Management](https://alloutdrilling.ca) excite me
 
 🧠 I'm [learning HTML & CSS](https://github.com/cryptoseb/cryptoseb.pw/tree/main/new-site) in my spare time with freeCodeCamp
 
